@@ -1,5 +1,5 @@
-# **Vous avez une allergie respiratoire? ** Recevez une recommandation quotidienne pour vous protéger des impacts de la **qualité de l’air**
+# **Vous avez une allergie respiratoire ? ** Recevez une recommandation quotidienne pour vous protéger des impacts de la **pollution de l’air**
 
-**Recosanté** est une **lettre d’information numérique** qui vous aide à vous protéger des **impacts de la qualité de l'air** sur votre santé, en particulier si vous êtes **allergique**
+**Recosanté** est une **lettre d’information numérique** qui vous aide à réduire les impacts sur votre santé de la **pollution** et des **pollens** présents dans l'air. 
 
-Créez votre profil pour recevoir **chaque jour** par **email** une **recommandation personnalisée**, selon votre profil et les **indicateurs environnementaux** liés à votre localisation.
+Inscrivez-vous pour recevoir **chaque jour** par **email** une **recommandation personnalisée** en fonction de votre profil et de la qualité de l'air.
